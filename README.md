@@ -1,2 +1,3 @@
 # empreendimento
-trabalho de melhoramento de imagens digitais em eventos e montagens profissionais para propagandas e marketing
+trabalho de melhorame
+Detalhes de NAP2DW
